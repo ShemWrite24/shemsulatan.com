@@ -1,2 +1,0 @@
-# shemsulatan.com
- 
